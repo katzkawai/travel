@@ -13,6 +13,7 @@
 ### Good
 
 * [Dean Street Townhouse](http://www.deanstreettownhouse.com/)
+* ~~[Mango Tree Indian](http://justmangotree.co.uk/)~~
 * [St. JOHN BREAD & WINE](http://www.stjohnbreadandwine.com/)
 
 ### Fine
